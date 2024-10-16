@@ -1,0 +1,1 @@
+This is a new chapter in my life. I would like to thank Per Scholas and their awesome team for giving me this opportunity to improve my skills and knowledge to be a better person and set an example for the younger generation. Always believe, anything is possible
